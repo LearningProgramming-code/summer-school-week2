@@ -1,0 +1,1 @@
+https://learningprogramming-code.github.io/summer-school-week2/ - live link
